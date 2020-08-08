@@ -1,0 +1,11 @@
+Buyer Sugar
+Buyer Sugar
+Buyer Sugar
+Buyer Sugar
+Buyer bread
+Buyer milk
+Buyer milk
+Buyer milk
+Buyer milk
+Buyer milk
+Buyer diapers
